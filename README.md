@@ -1,0 +1,2 @@
+# ZakkiFullmargin
+Bismilah gacor
